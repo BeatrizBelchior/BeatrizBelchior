@@ -1,4 +1,4 @@
-## Hey! 😊 I'm Beatriz. Welcome to my profile! ✌
+## Hey! 😊 I'm Bea. Welcome to my profile! ✌
 
  <div>
   <a href="https://github.com/BeatrizBelchior">
